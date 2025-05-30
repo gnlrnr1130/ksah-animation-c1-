@@ -1,1 +1,0 @@
-# ksah-animation-c1-
